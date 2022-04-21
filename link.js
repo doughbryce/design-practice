@@ -1,0 +1,1 @@
+`https://www.figma.com/file/W8JEqIm4Mgte0MOwydMwFx/product-page?node-id=2%3A2`
